@@ -16,3 +16,4 @@ i wanna learn more about coding or software engineering so i figured this would 
 - art (im more of a spectator than an artist)
 
 ## thats about it.
+this will get updated as time goes on.
